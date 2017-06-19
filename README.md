@@ -1,2 +1,0 @@
-# Like
-Hot or Not
